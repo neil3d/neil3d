@@ -1,4 +1,4 @@
-> "The farther backward you can look, the farther forward you can see." 
+> "The farther backward you can look, the farther forward you can see."   
 > Winston Churchill
 
 > "I am a slow walker, but I never walk back."  
