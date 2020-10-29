@@ -1,3 +1,6 @@
+> Learning by Doing：纸上得来终觉浅，绝知此事要躬行。
+> 《冬夜读书示子聿》，陆游
+
 > "The farther backward you can look, the farther forward you can see."   
 > Winston Churchill
 
