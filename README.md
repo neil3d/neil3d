@@ -1,4 +1,7 @@
-> Learning by Doing：纸上得来终觉浅，绝知此事要躬行。
+> If you succeed every mistakes becames legendary. If you fail, that's just a garbage.   
+> 马老师
+
+> Learning by Doing：纸上得来终觉浅，绝知此事要躬行。  
 > 《冬夜读书示子聿》，陆游
 
 > "The farther backward you can look, the farther forward you can see."   
