@@ -1,3 +1,6 @@
+> We	are	drowning in information	and	starving	for	knowledge.  
+> John	Naisbitt
+
 > If you succeed every mistakes becames legendary. If you fail, that's just a garbage.   
 > 马老师
 
