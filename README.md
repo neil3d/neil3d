@@ -1,7 +1,7 @@
   
 > You cannot read mathematics the way you read a novel. If you zip through a page in less than an hour, you are probably going too fast. 
-> - Sheldon Axler, Mathematics Department, San Francisco State University
-> 
+> — Sheldon Axler, Mathematics Department, San Francisco State University
+
 > Knowledge is a rare thing – you gain by giving it away.  
 > — Ivan Sutherland
 
